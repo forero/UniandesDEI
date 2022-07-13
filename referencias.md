@@ -8,3 +8,6 @@ https://www.javeriana.edu.co/documents/2456313/0/Documento+Programa+Inclusi%C3%B
 
 Reporte EAFIT. 
 https://www.eafit.edu.co/institucional/informes-gestion/informe-de-sostenibilidad-2020/Paginas/inclusion-y-diversidad.aspx
+
+What We Miss When We Focus on Physics “Talent”
+https://aps.org/publications/apsnews/202207/backpage.cfm  
